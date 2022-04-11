@@ -2,9 +2,9 @@
 
 > Nom Francais: Abigail 
 >
-> Nom Chinoise: 鲁君一
+> Nom Chinoise: JUNYI LU
 >
-> No.517261910033
+
 
 
 
